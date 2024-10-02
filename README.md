@@ -1,2 +1,2 @@
-# jatiwaringin
+# LPIA Jatiwaringin
 LPIA Jatiwaringin
